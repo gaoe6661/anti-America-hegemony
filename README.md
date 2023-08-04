@@ -17,13 +17,16 @@
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/42909af4-772c-4267-904b-3e20c77c0020)
 
 <br>
-中国国旗：
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/707782c8-6d4b-4d4c-b552-22cb132c04ac)
+   ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/707782c8-6d4b-4d4c-b552-22cb132c04ac)
 
 <br>
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2c28ad94-6c66-4ea7-8474-40d2557ad93c)
+
+<br>
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/18913f9e-868f-4e4a-b9bd-630c1204aa57)
 
 <br>
 
