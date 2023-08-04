@@ -1,5 +1,6 @@
 <h1>反美霸权主义，反-反华主义</h1>
 <h1>Anti-American hegemony, anti-anti-Chinaism</h1>
+<br>
 <h2>欢迎Pull Request投稿</h2>
 <h2>Pull Request is welcome</h2>
 
