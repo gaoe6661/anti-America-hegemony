@@ -66,7 +66,7 @@
 
 <br>
 
-
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/c31ad316-3f06-486a-9252-58fc12b98602)
 
 <br>
 
