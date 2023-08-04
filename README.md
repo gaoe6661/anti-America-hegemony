@@ -45,4 +45,16 @@
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/c237fe19-d845-46ad-8b42-a40b6bc631bf)
 
+<br>
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/80d36c9b-7225-4f18-8453-b17f40b1c686)
+
+<br>
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9b8b8a85-a6a0-450a-90d5-fe3ae4ff53de)
+
+<br>
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/026bda55-4b63-4328-b855-9b88687c5c91)
+
+<br>
