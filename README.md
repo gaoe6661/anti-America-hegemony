@@ -74,3 +74,7 @@
 
 <br>
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2ebeaf81-abe1-4662-8227-4f87cf213851)
+
+<br>
+
