@@ -199,4 +199,11 @@ Share this letter - read it in public - leave it in the printer. Share your writ
 ~BBC~ interview **Elon Musk**:
 https://www.youtube.com/watch?v=WC9JlG-ZXX0
 
+<br>
+CIA美好的称赞
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/8d5234d1-ba0e-4df9-bbce-9d2d1f487359)
+
+<br>
+
 
