@@ -205,5 +205,14 @@ CIA美好的称赞
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/8d5234d1-ba0e-4df9-bbce-9d2d1f487359)
 
 <br>
+美国没有审查制度，只有Censorship
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c09b5af6-b63a-481c-9b4b-74747223b91e)
+
+<br>
+给傻逼送点东风
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/f514e18d-e861-4712-9524-ddc91e24c738)
+
+<br>
 
