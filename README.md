@@ -224,4 +224,8 @@ CIA美好的称赞
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/f514e18d-e861-4712-9524-ddc91e24c738)
 
 <br>
+白乌鸦
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/be70d5c7-84e8-4191-aa52-8cebbaa24fdb)
+
+<br>
