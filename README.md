@@ -229,3 +229,9 @@ CIA美好的称赞
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/be70d5c7-84e8-4191-aa52-8cebbaa24fdb)
 
 <br>
+非人类
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/eca6f12c-4859-435e-b348-4f31fcbb48e2)
+
+<br>
+
