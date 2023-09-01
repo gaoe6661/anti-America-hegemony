@@ -206,7 +206,7 @@ https://www.youtube.com/watch?v=WC9JlG-ZXX0
 
 <br>
 
-<h2>Do you know how to say America in Chinese?</h2>
+<h1>Do you know how to say America in Chinese?</h1>
 <h3>Say with me:<br>
 Sha Bi<br>
 沙币（sand dollar, because America is rich）</h3>
