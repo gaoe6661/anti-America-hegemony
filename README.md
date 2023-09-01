@@ -5,14 +5,9 @@
 <h2>Pull Request is welcome</h2>
 
 <br>
-无法举报成功
+我什么都没有看见
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/57f58946-3e77-40db-b91c-01f9e8a49317)
-
-<br>
-抹黑/打脸
-
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/03d8b4bb-480e-4c9b-9476-70c4623157bc)
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fc92db85-d1b8-4166-b324-b8eb559d76e6)
 
 <br>
 你真的了解共产主义吗？
@@ -86,6 +81,11 @@ P的再假一点
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/80d36c9b-7225-4f18-8453-b17f40b1c686)
 
 <br>
+无法举报成功
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/57f58946-3e77-40db-b91c-01f9e8a49317)
+
+<br>
 一种很新的攻击
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9b8b8a85-a6a0-450a-90d5-fe3ae4ff53de)
@@ -114,6 +114,11 @@ P的再假一点
 FBI：这是你的自由
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f034ff5b-c580-4b06-b66b-13ec84d2c9ab)
+
+<br>
+抹黑/打脸
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/03d8b4bb-480e-4c9b-9476-70c4623157bc)
 
 <br>
 Libgen，万岁！
@@ -262,11 +267,6 @@ CIA美好的称赞
 CIA每年给多少钱？
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c81f3876-4353-4d18-8355-767ee9b9fce6)
-
-<br>
-我什么都没有看见
-
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fc92db85-d1b8-4166-b324-b8eb559d76e6)
 
 <br>
 微软的好事
