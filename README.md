@@ -234,8 +234,18 @@ CIA美好的称赞
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/eca6f12c-4859-435e-b348-4f31fcbb48e2)
 
 <br>
+猪湾事件
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/9b072318-fdb5-4251-b42b-220036ded91c)
+
+<br>
 域名出售
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e636a1a1-5e5e-45b8-91db-100fb618c28d)
+
+<br>
+和平的钥匙
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/4ef1a638-15dc-4c2f-a37a-5d0b4d95c08e)
 
 <br>
