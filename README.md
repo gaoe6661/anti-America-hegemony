@@ -116,6 +116,11 @@ FBI：这是你的自由
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f034ff5b-c580-4b06-b66b-13ec84d2c9ab)
 
 <br>
+我的右脚什么都没有
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9b9d9cfb-0a7f-4150-a595-b8ee13b046e4)
+
+<br>
 抹黑/打脸
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/03d8b4bb-480e-4c9b-9476-70c4623157bc)
