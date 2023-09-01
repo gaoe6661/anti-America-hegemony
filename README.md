@@ -283,3 +283,36 @@ CIA每年给多少钱？
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d360ab47-1406-473c-8eea-8dcb9ad08cc3)
 
 <br>
+双赢版反共反中
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/225514a7-922f-4ce8-b930-4131627f3e2b)
+
+<br>
+巴不得删了权XX案
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/24986a92-a030-45c1-a4e3-8a82a9e4b299)
+
+<br>
+
+[Communist Party USA](https://www.cpusa.org/)
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e8ac7a95-7657-49c4-9229-88ce6d89b572)
+
+<br>
+【反对】【不先】使用核武器
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2bc66fab-54a1-458f-9402-3f205b15c06a)
+
+<br>
+
+<h1>
+鬼知道CIA哪天会不会把我抓起来。
+但是他们抓不到的是我的精神。
+</h1>
+
+<h1>
+Who knows if the CIA will arrest me one day.
+But what they can't catch is my spirit.
+</h1>
+
+<br>
