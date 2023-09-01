@@ -269,3 +269,8 @@ CIA每年给多少钱？
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fc92db85-d1b8-4166-b324-b8eb559d76e6)
 
 <br>
+微软的好事
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d360ab47-1406-473c-8eea-8dcb9ad08cc3)
+
+<br>
