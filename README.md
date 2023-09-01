@@ -316,3 +316,14 @@ But what they can't catch is my spirit.
 </h1>
 
 <br>
+中国人？
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/232cc418-8404-41fe-9d9e-f5a8aac1dcfa)
+
+<br>
+
+<h1>中华人民共和国万岁！世界人民大团结万岁！打倒美国帝国主义！</h1>
+
+<h1>Long live the People's Republic of China! Long live the great unity of the peoples of the world! Down with American imperialism! </h1>
+
+<br>
