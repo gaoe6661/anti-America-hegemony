@@ -249,3 +249,18 @@ CIA美好的称赞
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/4ef1a638-15dc-4c2f-a37a-5d0b4d95c08e)
 
 <br>
+核废水造假？
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fb0a2c99-8e29-4854-ad1c-f2c1698d52a2)
+
+<br>
+连海洋都不要
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c5957219-1370-4e82-a5ff-8704edbd36ad)
+
+<br>
+CIA每年给多少钱？
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c81f3876-4353-4d18-8355-767ee9b9fce6)
+
+<br>
