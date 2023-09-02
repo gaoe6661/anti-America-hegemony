@@ -369,3 +369,8 @@ But what they can't catch is my spirit.
 <h1>Long live the People's Republic of China! Long live the great unity of the peoples of the world! Down with American imperialism! </h1>
 
 <br>
+<h1>中华人民共和国万岁！世界人民大团结万岁！打倒美国帝国主义！</h1>
+
+<h1>Long live the People's Republic of China! Long live the great unity of the peoples of the world! Down with American imperialism! </h1>
+
+<br>
