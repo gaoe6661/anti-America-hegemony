@@ -200,6 +200,22 @@ Share this letter - read it in public - leave it in the printer. Share your writ
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/219598d2-50a8-4b99-b95e-13c27713a749)
 
 <br>
+
+<h1>
+记者:你们为什么打伊拉克？
+美国:因为伊拉克有大规模杀伤性武器
+记者:那你们为啥不打俄罗斯？
+美国:因为俄罗斯是真的有
+</h1>
+
+<h1>
+Reporter: Why did you fight Iraq?
+United States: because Iraq has weapons of mass destruction
+Reporter: Then why don't you fight Russia?
+America: Because Russia really has
+</h1>
+
+<br>
 共产主义不等于
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/169ff46d-d5a1-45ba-8c38-c79966d1b45d)
