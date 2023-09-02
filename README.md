@@ -202,17 +202,17 @@ Share this letter - read it in public - leave it in the printer. Share your writ
 <br>
 
 <h1>
-记者:你们为什么打伊拉克？
-美国:因为伊拉克有大规模杀伤性武器
-记者:那你们为啥不打俄罗斯？
-美国:因为俄罗斯是真的有
+记者:你们为什么打伊拉克？<br>
+美国:因为伊拉克有大规模杀伤性武器<br>
+记者:那你们为啥不打俄罗斯？<br>
+美国:因为俄罗斯是真的有<br>
 </h1>
 
 <h1>
-Reporter: Why did you fight Iraq?
-United States: because Iraq has weapons of mass destruction
-Reporter: Then why don't you fight Russia?
-America: Because Russia really has
+Reporter: Why did you fight Iraq?<br>
+United States: because Iraq has weapons of mass destruction<br>
+Reporter: Then why don't you fight Russia?<br>
+America: Because Russia really has them<br>
 </h1>
 
 <br>
