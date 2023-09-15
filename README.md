@@ -54,6 +54,11 @@ BBC的SB报道
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/ad8c9611-d18c-4e8b-8972-6d8a24453488)
 
 <br>
+《霸权让世界变得更美好》
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/42e51c85-16bd-49b1-8e64-ebf8c20f6494)
+
+<br>
 拜登又摔倒了
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d6992190-1f91-4a34-8a60-877b1c4af5bc)
