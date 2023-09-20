@@ -389,3 +389,24 @@ But what they can't catch is my spirit.
 <h1>Long live the People's Republic of China! Long live the great unity of the peoples of the world! Down with American imperialism! </h1>
 
 <br>
+
+<h1>
+
+[中华人民共和国国歌](https://www.gov.cn/guoqing/guoge/mobile.htm)
+  
+</h1>
+
+<br>
+国歌
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/b7c3d8fc-7043-4b8e-b233-3a828be432d9)
+
+<br>
+简版国歌
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/b67821b8-493a-4cfd-af53-5521960cbae0)
+
+<h3>注意：图片资源来自中国政府网，网站允许下载和转发</h3>
+
+<br>
+
