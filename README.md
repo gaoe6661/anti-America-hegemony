@@ -414,4 +414,7 @@ youtube = 真相?
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5b95133c-72d8-45c1-a122-b0303b9d69b0)
 
 <br>
+爆了爆了 = 撅醒青年
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/07ee4ac6-36da-4233-85d5-46e16d31f302)
 
