@@ -409,4 +409,9 @@ But what they can't catch is my spirit.
 <h3>注意：图片资源来自中国政府网，网站允许下载和转发</h3>
 
 <br>
+youtube = 真相?
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5b95133c-72d8-45c1-a122-b0303b9d69b0)
+
+<br>
 
