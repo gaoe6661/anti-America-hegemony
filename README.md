@@ -418,3 +418,7 @@ youtube = 真相?
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/07ee4ac6-36da-4233-85d5-46e16d31f302)
 
+<br>
+自己干的
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/02e08782-cb0b-4346-9376-3fa30f786229)
