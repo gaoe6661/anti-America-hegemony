@@ -422,3 +422,8 @@ youtube = 真相?
 自己干的
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/02e08782-cb0b-4346-9376-3fa30f786229)
+
+<br>
+选择性民主（指搜索污染并无法举报）
+![image](https://github.com/hm9245/anti-America-hegemony/assets/141204703/4161316b-40df-42e4-8773-427a81dbeaa6)
+
