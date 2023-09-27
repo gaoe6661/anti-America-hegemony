@@ -4,7 +4,7 @@
 <h2>欢迎Pull Request投稿</h2>
 <h2>Pull Request is welcome</h2>
 
-[声明 Declaration](https://github.com/gaoe6661/anti-America-hegemony/blob/main/Declaration.md)
+[声明 Declaration](Declaration.md) (黑名单 BlackList)[BlackList.md]
 
 
 <br>
