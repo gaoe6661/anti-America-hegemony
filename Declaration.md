@@ -11,3 +11,6 @@
 本储存库部分图片源于网络，如有侵权，请告诉我，我会尽快删除
   <br>Some photos are from the internet. If any image is infringing, please tell me and I will delete it as soon as possible
 </h3>
+
+### 我们将以他们的行为来反对他们的行为，但我们不会像他们一样滥用Action乱改别人的issues，还污染搜索结果  
+### We will act against their actions,But at least we won’t abuse Action to modify other people’s issues like they do,and pollute the search.  
