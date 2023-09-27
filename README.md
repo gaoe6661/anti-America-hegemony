@@ -425,5 +425,10 @@ youtube = 真相?
 
 <br>
 选择性民主（指搜索污染并无法举报）
+
 ![image](https://github.com/hm9245/anti-America-hegemony/assets/141204703/4161316b-40df-42e4-8773-427a81dbeaa6)
 
+<br>
+C# Programming Language
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/1009925c-e35b-41a0-8878-e40237a80a22)
