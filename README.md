@@ -438,3 +438,8 @@ youtube = 真相?
 C# Programming Language
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/1009925c-e35b-41a0-8878-e40237a80a22)
+
+<br>
+请闭嘴
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/4dccdb78-9cf6-4fc9-bed2-c234edc27078)
