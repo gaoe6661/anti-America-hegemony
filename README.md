@@ -8,7 +8,7 @@
   <br>Declaration on Search Pollution
   <br><br>
 如果你发现你没有搜索此储存库，并在搜索列表中造成了搜索污染，请告诉我，我会尽快处理相关关键字
-  <br>If you find that you are not searching this repository and causing search pollution in the search list, please let me know and I will deal with the keywords as soon as possible</h3>
+  <br>If you find that you are not searching this repository and the repository causing search pollution in the search list, please let me know and I will deal with the keywords as soon as possible</h3>
 
 <br>
 我什么都没有看见
