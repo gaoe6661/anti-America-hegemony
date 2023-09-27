@@ -4,6 +4,11 @@
 <h2>欢迎Pull Request投稿</h2>
 <h2>Pull Request is welcome</h2>
 
+<h3>关于搜索,污染的声明</h3>
+<h3>Declaration on Search Po,llution</h3>
+<h3>If you find that you are not searching this repository and causing search po,llution in the search list, please let me know and I will deal with the keywords as soon as possible</h3>
+<h3>如果你发现你没有搜索此储存库，并在搜索列表中造成了搜索,污染，请告诉我，我会尽快处理相关关键字</h3>
+
 <br>
 我什么都没有看见
 
