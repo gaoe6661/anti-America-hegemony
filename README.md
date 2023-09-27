@@ -422,8 +422,3 @@ youtube = 真相?
 自己干的
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/02e08782-cb0b-4346-9376-3fa30f786229)
-
-<br>
-C# Programming Language
-
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/1009925c-e35b-41a0-8878-e40237a80a22)
