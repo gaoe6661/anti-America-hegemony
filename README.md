@@ -452,3 +452,7 @@ AP幼儿园
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/d4cca2e9-edfe-40bf-9774-b9efe3dcd285)
 
+<br>
+比赛
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/1fb86d7d-e274-4a8b-8229-42d6183452df)
