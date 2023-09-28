@@ -441,3 +441,8 @@ C# Programming Language
 请闭嘴
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/4dccdb78-9cf6-4fc9-bed2-c234edc27078)
+
+<br>
+乌龟
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6f3740e2-8d92-4c30-9504-5cee1e56eef3)
