@@ -5,7 +5,7 @@
 <h2>Pull Request is welcome</h2>
 
 * [声明 Declaration](Declaration.md)
-* [黑名单 BlackList](BlackList.md)
+* [黑名单 BlackLists](BlackLists.md)
 
 
 <br>
