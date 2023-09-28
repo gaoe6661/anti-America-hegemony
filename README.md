@@ -446,3 +446,9 @@ C# Programming Language
 乌龟
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6f3740e2-8d92-4c30-9504-5cee1e56eef3)
+
+<br>
+AP幼儿园
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/d4cca2e9-edfe-40bf-9774-b9efe3dcd285)
+
