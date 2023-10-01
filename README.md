@@ -456,3 +456,25 @@ AP幼儿园
 比赛
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/1fb86d7d-e274-4a8b-8229-42d6183452df)
+
+<br>
+优雅
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/28ba4dd5-5e35-4adb-af5a-fc9d74d63b22)
+
+<br>
+自由？
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/7e4f4180-3ead-4fc3-b1f6-892093f047d1)
+
+<br>
+你真的喜欢？
+
+<h1>
+  
+  [DO YOU REALLY LIKE THIS?](https://www.gunviolencearchive.org/)
+  
+</h1>
+
+<br>
+
