@@ -479,4 +479,11 @@ AP幼儿园
 </h1>
 
 <br>
+Your freedom
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f178cb9d-066f-46b3-a473-2eea186ad3d3)
+
+<br>
+
+
 
