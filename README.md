@@ -112,6 +112,11 @@ P的再假一点
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/884660c4-8448-4d67-9d39-85f106cede4d)
 
 <br>
+假言论
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/3531802c-a689-4828-a18d-b045ba1ef44b)
+
+<br>
 僵尸之城
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/93eac5b4-2a4b-4ab9-ad84-977acb3468ec)
