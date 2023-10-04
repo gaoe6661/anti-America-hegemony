@@ -1,0 +1,19 @@
+name: Translate issues
+on:
+  workflow_dispatch:
+  issues:
+    types: [opened, closed, synchronize]
+  pull_request:
+    types: [opened, closed, synchronize]
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+      - name: DeepL Translate Github Action
+        uses: lyqht/deepl-translate-github-action@v2.0.0
+        with:
+          target_languages: zh,ja,kr,fr,de,ru,in,pl,cz,id,nl,es,cs,ua
+          input_file_path: docs/simple/original.md
+          output_file_name_pattern: docs/simple/{language}.md
+          deepl_api_key: ${{ secrets.DEEPL_API_KEY }}
