@@ -3,7 +3,7 @@ on:
   issue_comment: 
     types: [created]
   issues: 
-    types: [opened, created]
+    types: [opened]
 
 jobs:
   build:
