@@ -489,6 +489,8 @@ Your freedom
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f178cb9d-066f-46b3-a473-2eea186ad3d3)
 
 <br>
+多吃点。
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f79ddf1d-a2ad-45a8-a011-8c3854048504)
 
 
