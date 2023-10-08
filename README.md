@@ -497,3 +497,8 @@ Your freedom
 什么是国际 法？
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5d3d6e50-52a6-47d3-91dd-0af935a473bd)
+
+<br>
+你敢说吗？
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/ab0a1b5c-0ba2-4d94-9ca4-5a8846290c1e)
