@@ -513,3 +513,11 @@ Your freedom
 辐 岛幸福生活
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cb990a88-0a2e-4a61-ab85-6c183a090fe5)
+
+<br>
+美国：买卖就是我不想付款就不付。
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/51e22707-aae0-4444-b259-16e4a79d8142)
+
+<br>
+
