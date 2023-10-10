@@ -528,3 +528,8 @@ Your freedom
 M K - U L T R A
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9273b799-67fa-4329-8e2d-7b4a92649fe5)
+
+<br>
+斯坦福监狱实验
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/3d836440-f8ed-4600-a52f-4edc2ad5072f)
