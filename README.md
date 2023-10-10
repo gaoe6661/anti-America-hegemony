@@ -9,6 +9,7 @@
 * [与六四事件有关的文章](8964)
 * [美国对中国进行网络攻击相关报道](hacker)
 
+<h3> 协 作 者 ， 请 勿 删 除   本   文   中 刻  意   存 留    的  任 何 空  格  和    看   似   不 恰  当   的  标 点 ， 目 的  是 为 了 突 破 八  爪 鱼 的 “ 自 由 的 ” 、 “  绝 对 没 有 的   ”  审 查 。 </h3>
 
 <br>
 我什么都没有看见
@@ -502,3 +503,13 @@ Your freedom
 你敢说吗？
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/ab0a1b5c-0ba2-4d94-9ca4-5a8846290c1e)
+
+<br>
+福岛
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d40887b1-cdd5-4803-918b-6c6e88a32296)
+
+<br>
+辐 岛幸福生活
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cb990a88-0a2e-4a61-ab85-6c183a090fe5)
