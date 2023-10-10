@@ -520,4 +520,9 @@ Your freedom
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/51e22707-aae0-4444-b259-16e4a79d8142)
 
 <br>
+《自 由 的 空 气》
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/8d044d38-c01e-4f91-b4f8-875d7574742e)
+
+<br>
 
