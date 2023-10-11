@@ -533,3 +533,8 @@ M K - U L T R A
 斯坦福监狱实验
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/3d836440-f8ed-4600-a52f-4edc2ad5072f)
+
+<br>
+鞠躬
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/7b948ee7-60a5-43d4-b1e5-2c09dc51beb9)
