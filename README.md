@@ -551,6 +551,10 @@ M K - U L T R A
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/51748ce2-f333-408d-987c-3c7c2233a390)
 
 <br>
+以 - 通过
+色 - 颜色
+列 - 排序
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fba2a6bf-3bf5-4d9e-a09c-b467bc6d14fe)
 
 
