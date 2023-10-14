@@ -557,4 +557,10 @@ M K - U L T R A
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fba2a6bf-3bf5-4d9e-a09c-b467bc6d14fe)
 
+<br>
+20世纪的翻转
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cc9102fe-1c9d-4d31-8247-1bece95b3d27)
+
+<br>
 
