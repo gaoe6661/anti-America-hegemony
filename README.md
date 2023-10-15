@@ -581,3 +581,10 @@ BBC - 逼逼c
 新势力
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6b10c6d9-2ae8-4b12-9f22-94d82450770d)
+
+<br>
+自己成为了他
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e100f877-1457-49fe-9103-bebe4ce07e75)
+
+<br>
