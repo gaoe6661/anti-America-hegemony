@@ -25,7 +25,6 @@
 <br>
 
 
-
 <br>
 中国一点都不能少
 
@@ -586,5 +585,10 @@ BBC - 逼逼c
 自己成为了他
 
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e100f877-1457-49fe-9103-bebe4ce07e75)
+
+<br>
+新闻的屏幕不够大
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fa4a253c-6ee0-4430-879e-5bc09dc59bab)
 
 <br>
