@@ -4,4 +4,4 @@ User 用户:
 [cirosantilli](https://github.com/cirosantilli)  
 [codin-stuffs](https://github.com/codin-stuffs)  
 Repo 仓库:  
-[china-dictatorship](cirosantilli/china-dictatorship)  
+[china-dictatorship](https://github.com/cirosantilli/china-dictatorship)  
