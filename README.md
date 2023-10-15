@@ -573,4 +573,11 @@ BBC - 逼逼c
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f3b0a1e3-5552-417b-88ce-8f685d01f920)
 
 <br>
+马蜂窝
 
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e315ecb4-86ce-4d6b-b1b5-91bfad09072c)
+
+<br>
+新势力
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6b10c6d9-2ae8-4b12-9f22-94d82450770d)
