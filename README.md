@@ -9,6 +9,7 @@
 * [与六四事件有关的文章](8964)
 * [美国对中国进行网络攻击相关报道](hacker)
 * [美国反对美国 - 书](https://github.com/zealotCE/America-Against-America)
+* [为什么要创建本仓库？](https://github.com/hm9245/github-not-politichub)
 
 <h3> 协 作 者 ， 请 勿 删 除   本   文   中 刻  意   存 留    的  任 何 空  格  和    看   似   不 恰  当   的  标 点 ， 目 的  是 为 了 突 破 八  爪 鱼 的 “ 自 由 的 ” 、 “  绝 对 没 有 的   ”  审 查 。 </h3>
 
