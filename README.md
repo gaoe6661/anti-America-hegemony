@@ -1,6 +1,6 @@
 <h1>反美霸权主义</h1>
-<h1>Anti-American hegemony</h1>
 <br>
+<h1>Anti-American hegemony</h1>
 <h2>欢迎Pull Request投稿</h2>
 <h2>Pull Request is welcome</h2>
 
@@ -17,143 +17,143 @@
 <br>
 我什么都没有看见
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fc92db85-d1b8-4166-b324-b8eb559d76e6)
 
+![image](images/fc92db85-d1b8-4166-b324-b8eb559d76e6.png)
 <br>
 你真的了解共产主义吗？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cdc378eb-240b-4d20-94f4-24b4ad8554e3)
 
+![image](images/cdc378eb-240b-4d20-94f4-24b4ad8554e3.png)
 <br>
 
 
 <br>
 中国一点都不能少
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/42909af4-772c-4267-904b-3e20c77c0020)
 
+![image](images/42909af4-772c-4267-904b-3e20c77c0020.png)
 <br>
 中国国旗
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/707782c8-6d4b-4d4c-b552-22cb132c04ac)
 
+![image](images/707782c8-6d4b-4d4c-b552-22cb132c04ac.png)
 <br>
 中华民国（1912-1949）
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2c28ad94-6c66-4ea7-8474-40d2557ad93c)
 
+![image](images/2c28ad94-6c66-4ea7-8474-40d2557ad93c.png)
 <br>
 地位相等
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f7857b2f-2ffd-4f7a-b4df-44fadaf720e2)
 
+![image](images/f7857b2f-2ffd-4f7a-b4df-44fadaf720e2.png)
 <br>
 宣传自由民主的储存库把我禁言了
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/18913f9e-868f-4e4a-b9bd-630c1204aa57)
 
+![image](images/18913f9e-868f-4e4a-b9bd-630c1204aa57.png)
 <br>
 宣传自由民主的储存库把不同意见改成相同文本
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/00a2e849-17d0-46d2-9661-35d53ace156f)
 
+![image](images/00a2e849-17d0-46d2-9661-35d53ace156f.png)
 <br>
 BBC的SB报道
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/ad8c9611-d18c-4e8b-8972-6d8a24453488)
 
+![image](images/ad8c9611-d18c-4e8b-8972-6d8a24453488.png)
 <br>
 《霸权让世界变得更美好》
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/42e51c85-16bd-49b1-8e64-ebf8c20f6494)
 
+![image](images/42e51c85-16bd-49b1-8e64-ebf8c20f6494.png)
 <br>
 拜登又摔倒了
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d6992190-1f91-4a34-8a60-877b1c4af5bc)
 
+![image](images/d6992190-1f91-4a34-8a60-877b1c4af5bc.png)
 <br>
 大麻合法化地图
 
 <h3>Incorrect:</h3>
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2c45955e-1188-4b38-9d60-ac3ad42a957c)
 
+![image](images/2c45955e-1188-4b38-9d60-ac3ad42a957c.png)
 <h3>Correct:</h3>
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/92d2fda9-6b5f-4e9e-94fb-54b28fea5f7a)
 
+![image](images/92d2fda9-6b5f-4e9e-94fb-54b28fea5f7a.png)
 
 <br>
 暴力执法
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/c237fe19-d845-46ad-8b42-a40b6bc631bf)
 
+![image](images/c237fe19-d845-46ad-8b42-a40b6bc631bf.png)
 <br>
 P的再假一点
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/80d36c9b-7225-4f18-8453-b17f40b1c686)
 
+![image](images/80d36c9b-7225-4f18-8453-b17f40b1c686.png)
 <br>
 无法举报成功
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/57f58946-3e77-40db-b91c-01f9e8a49317)
 
+![image](images/57f58946-3e77-40db-b91c-01f9e8a49317.png)
 <br>
 一种很新的攻击
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9b8b8a85-a6a0-450a-90d5-fe3ae4ff53de)
 
+![image](images/9b8b8a85-a6a0-450a-90d5-fe3ae4ff53de.png)
 <br>
 美国版24字
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/026bda55-4b63-4328-b855-9b88687c5c91)
 
+![image](images/026bda55-4b63-4328-b855-9b88687c5c91.png)
 <br>
 没有审查
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/884660c4-8448-4d67-9d39-85f106cede4d)
 
+![image](images/884660c4-8448-4d67-9d39-85f106cede4d.png)
 <br>
 假言论
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/3531802c-a689-4828-a18d-b045ba1ef44b)
 
+![image](images/3531802c-a689-4828-a18d-b045ba1ef44b.png)
 <br>
 僵尸之城
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/93eac5b4-2a4b-4ab9-ad84-977acb3468ec)
 
+![image](images/93eac5b4-2a4b-4ab9-ad84-977acb3468ec.png)
 <br>
 朝鲜战争的真相
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/c31ad316-3f06-486a-9252-58fc12b98602)
 
+![image](images/c31ad316-3f06-486a-9252-58fc12b98602.png)
 <br>
 明尼苏达州大麻正式合法化
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2ebeaf81-abe1-4662-8227-4f87cf213851)
 
+![image](images/2ebeaf81-abe1-4662-8227-4f87cf213851.png)
 <br>
 FBI：这是你的自由
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f034ff5b-c580-4b06-b66b-13ec84d2c9ab)
 
+![image](images/f034ff5b-c580-4b06-b66b-13ec84d2c9ab.png)
 <br>
 我的右脚什么都没有
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9b9d9cfb-0a7f-4150-a595-b8ee13b046e4)
 
+![image](images/9b9d9cfb-0a7f-4150-a595-b8ee13b046e4.png)
 <br>
 抹黑/打脸
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/03d8b4bb-480e-4c9b-9476-70c4623157bc)
 
+![image](images/03d8b4bb-480e-4c9b-9476-70c4623157bc.png)
 <br>
 Libgen，万岁！
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/50068380-46c7-4dfc-a097-c6bd0d2bd949)
 
+![image](images/50068380-46c7-4dfc-a097-c6bd0d2bd949.png)
 <h3>Libgen Letter of Solidarity:</h3>
 
 In Antoine de Saint Exupéry's tale the Little Prince meets a businessman who accumulates stars with the sole purpose of being able to buy more stars. The Little Prince is perplexed. He owns only a flower, which he waters every day. Three volcanoes, which he cleans every week. "It is of some use to my volcanoes, and it is of some use to my flower, that I own them," he says, "but you are of no use to the stars that you own".
@@ -206,23 +206,23 @@ Share this letter - read it in public - leave it in the printer. Share your writ
 <br>
 加州共和国万岁！
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e9a9b2d5-a1b1-45b6-b637-a0af357a2e61)
 
+![image](images/e9a9b2d5-a1b1-45b6-b637-a0af357a2e61.png)
 <br>
 夏威夷王国万岁！
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/75acf819-376f-4a8e-9084-6056a8780899)
 
+![image](images/75acf819-376f-4a8e-9084-6056a8780899.png)
 <br>
 美国新地图
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f6ac22bc-e22d-4571-ad01-5755c2d26445)
 
+![image](images/f6ac22bc-e22d-4571-ad01-5755c2d26445.png)
 <br>
 共产主义图片
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/219598d2-50a8-4b99-b95e-13c27713a749)
 
+![image](images/219598d2-50a8-4b99-b95e-13c27713a749.png)
 <br>
 
 <h1>
@@ -242,8 +242,8 @@ America: Because Russia really has them<br>
 <br>
 共产主义不等于
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/169ff46d-d5a1-45ba-8c38-c79966d1b45d)
 
+![image](images/169ff46d-d5a1-45ba-8c38-c79966d1b45d.png)
 <br>
 
 <h1>
@@ -265,23 +265,23 @@ Sha Bi<br>
 
 CIA美好的称赞
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/8d5234d1-ba0e-4df9-bbce-9d2d1f487359)
 
+![image](images/8d5234d1-ba0e-4df9-bbce-9d2d1f487359.png)
 <br>
 美国没有审查制度，只有Censorship
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c09b5af6-b63a-481c-9b4b-74747223b91e)
 
+![image](images/c09b5af6-b63a-481c-9b4b-74747223b91e.png)
 <br>
 给傻逼送点东风
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/f514e18d-e861-4712-9524-ddc91e24c738)
 
+![image](images/f514e18d-e861-4712-9524-ddc91e24c738.png)
 <br>
 白乌鸦
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/be70d5c7-84e8-4191-aa52-8cebbaa24fdb)
 
+![image](images/be70d5c7-84e8-4191-aa52-8cebbaa24fdb.png)
 <br>
 
 <h1>
@@ -311,69 +311,69 @@ It seems that America is describing themself<br>
 <br>
 非人类
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/eca6f12c-4859-435e-b348-4f31fcbb48e2)
 
+![image](images/eca6f12c-4859-435e-b348-4f31fcbb48e2.png)
 <br>
 猪湾事件
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/9b072318-fdb5-4251-b42b-220036ded91c)
 
+![image](images/9b072318-fdb5-4251-b42b-220036ded91c.png)
 <br>
 Lockdown Browser
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5ad8348b-c8ce-4b20-abac-afcabb291253)
 
+![image](images/5ad8348b-c8ce-4b20-abac-afcabb291253.png)
 <br>
 域名出售
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e636a1a1-5e5e-45b8-91db-100fb618c28d)
 
+![image](images/e636a1a1-5e5e-45b8-91db-100fb618c28d.png)
 <br>
 和平的钥匙
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/4ef1a638-15dc-4c2f-a37a-5d0b4d95c08e)
 
+![image](images/4ef1a638-15dc-4c2f-a37a-5d0b4d95c08e.png)
 <br>
 核废水造假？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/fb0a2c99-8e29-4854-ad1c-f2c1698d52a2)
 
+![image](images/fb0a2c99-8e29-4854-ad1c-f2c1698d52a2.png)
 <br>
 连海洋都不要
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c5957219-1370-4e82-a5ff-8704edbd36ad)
 
+![image](images/c5957219-1370-4e82-a5ff-8704edbd36ad.png)
 <br>
 CIA每年给多少钱？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/c81f3876-4353-4d18-8355-767ee9b9fce6)
 
+![image](images/c81f3876-4353-4d18-8355-767ee9b9fce6.png)
 <br>
 微软的好事
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d360ab47-1406-473c-8eea-8dcb9ad08cc3)
 
+![image](images/d360ab47-1406-473c-8eea-8dcb9ad08cc3.png)
 <br>
 双赢版反共反中
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/225514a7-922f-4ce8-b930-4131627f3e2b)
 
+![image](images/225514a7-922f-4ce8-b930-4131627f3e2b.png)
 <br>
 巴不得删了权XX案
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/24986a92-a030-45c1-a4e3-8a82a9e4b299)
 
+![image](images/24986a92-a030-45c1-a4e3-8a82a9e4b299.png)
 <br>
 
 [Communist Party USA](https://www.cpusa.org/)
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e8ac7a95-7657-49c4-9229-88ce6d89b572)
 
+![image](images/e8ac7a95-7657-49c4-9229-88ce6d89b572.png)
 <br>
 【反对】【不先】使用核武器
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/2bc66fab-54a1-458f-9402-3f205b15c06a)
 
+![image](images/2bc66fab-54a1-458f-9402-3f205b15c06a.png)
 <br>
 
 <h1>
@@ -389,8 +389,8 @@ But what they can't catch is my spirit.
 <br>
 中国人？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/232cc418-8404-41fe-9d9e-f5a8aac1dcfa)
 
+![image](images/232cc418-8404-41fe-9d9e-f5a8aac1dcfa.png)
 <br>
 
 <h1>中华人民共和国万岁！世界人民大团结万岁！打倒美国帝国主义！</h1>
@@ -413,70 +413,70 @@ But what they can't catch is my spirit.
 <br>
 国歌
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/b7c3d8fc-7043-4b8e-b233-3a828be432d9)
 
+![image](images/b7c3d8fc-7043-4b8e-b233-3a828be432d9.png)
 <br>
 简版国歌
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/b67821b8-493a-4cfd-af53-5521960cbae0)
 
+![image](images/b67821b8-493a-4cfd-af53-5521960cbae0.png)
 <h3>注意：图片资源来自中国政府网，网站允许下载和转发</h3>
 
 <br>
 youtube = 真相?
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5b95133c-72d8-45c1-a122-b0303b9d69b0)
 
+![image](images/5b95133c-72d8-45c1-a122-b0303b9d69b0.png)
 <br>
 爆了爆了 = 撅醒青年
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/07ee4ac6-36da-4233-85d5-46e16d31f302)
 
+![image](images/07ee4ac6-36da-4233-85d5-46e16d31f302.png)
 <br>
 自己干的
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/02e08782-cb0b-4346-9376-3fa30f786229)
 
+![image](images/02e08782-cb0b-4346-9376-3fa30f786229.png)
 <br>
 选择性民主（指搜索污染并无法举报）
 
-![image](https://github.com/hm9245/anti-America-hegemony/assets/141204703/4161316b-40df-42e4-8773-427a81dbeaa6)
 
+![image](images/4161316b-40df-42e4-8773-427a81dbeaa6.png)
 <br>
 C# Programming Language
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/1009925c-e35b-41a0-8878-e40237a80a22)
 
+![image](images/1009925c-e35b-41a0-8878-e40237a80a22.png)
 <br>
 请闭嘴
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/4dccdb78-9cf6-4fc9-bed2-c234edc27078)
 
+![image](images/4dccdb78-9cf6-4fc9-bed2-c234edc27078.png)
 <br>
 乌龟
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6f3740e2-8d92-4c30-9504-5cee1e56eef3)
 
+![image](images/6f3740e2-8d92-4c30-9504-5cee1e56eef3.png)
 <br>
 AP幼儿园
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/d4cca2e9-edfe-40bf-9774-b9efe3dcd285)
 
+![image](images/d4cca2e9-edfe-40bf-9774-b9efe3dcd285.png)
 <br>
 比赛
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/120338259/1fb86d7d-e274-4a8b-8229-42d6183452df)
 
+![image](images/1fb86d7d-e274-4a8b-8229-42d6183452df.png)
 <br>
 优雅
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/28ba4dd5-5e35-4adb-af5a-fc9d74d63b22)
 
+![image](images/28ba4dd5-5e35-4adb-af5a-fc9d74d63b22.png)
 <br>
 自由？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/7e4f4180-3ead-4fc3-b1f6-892093f047d1)
 
+![image](images/7e4f4180-3ead-4fc3-b1f6-892093f047d1.png)
 <br>
 你真的喜欢？
 
@@ -489,115 +489,114 @@ AP幼儿园
 <br>
 Your freedom
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f178cb9d-066f-46b3-a473-2eea186ad3d3)
 
+![image](images/f178cb9d-066f-46b3-a473-2eea186ad3d3.png)
 <br>
 多吃点。
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f79ddf1d-a2ad-45a8-a011-8c3854048504)
 
+![image](images/f79ddf1d-a2ad-45a8-a011-8c3854048504.png)
 <br>
 什么是国际 法？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5d3d6e50-52a6-47d3-91dd-0af935a473bd)
 
+![image](images/5d3d6e50-52a6-47d3-91dd-0af935a473bd.png)
 <br>
 你敢说吗？
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/ab0a1b5c-0ba2-4d94-9ca4-5a8846290c1e)
 
+![image](images/ab0a1b5c-0ba2-4d94-9ca4-5a8846290c1e.png)
 <br>
 福岛
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/d40887b1-cdd5-4803-918b-6c6e88a32296)
 
+![image](images/d40887b1-cdd5-4803-918b-6c6e88a32296.png)
 <br>
 辐 岛幸福生活
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cb990a88-0a2e-4a61-ab85-6c183a090fe5)
 
+![image](images/cb990a88-0a2e-4a61-ab85-6c183a090fe5.png)
 <br>
 美国：买卖就是我不想付款就不付。
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/51e22707-aae0-4444-b259-16e4a79d8142)
 
+![image](images/51e22707-aae0-4444-b259-16e4a79d8142.png)
 <br>
 《自 由 的 空 气》
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/8d044d38-c01e-4f91-b4f8-875d7574742e)
 
+![image](images/8d044d38-c01e-4f91-b4f8-875d7574742e.png)
 <br>
 M K - U L T R A
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/9273b799-67fa-4329-8e2d-7b4a92649fe5)
 
+![image](images/9273b799-67fa-4329-8e2d-7b4a92649fe5.png)
 <br>
 斯坦福监狱实验
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/3d836440-f8ed-4600-a52f-4edc2ad5072f)
 
+![image](images/3d836440-f8ed-4600-a52f-4edc2ad5072f.png)
 <br>
 鞠躬
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/7b948ee7-60a5-43d4-b1e5-2c09dc51beb9)
 
+![image](images/7b948ee7-60a5-43d4-b1e5-2c09dc51beb9.png)
 <br>
 屏等
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e46161ae-7db9-4c76-bb51-6613033ec98a)
 
+![image](images/e46161ae-7db9-4c76-bb51-6613033ec98a.png)
 <br>
 老大爷在看着你
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/51748ce2-f333-408d-987c-3c7c2233a390)
 
+![image](images/51748ce2-f333-408d-987c-3c7c2233a390.png)
 <br>
 以 - 通过
 色 - 颜色
 列 - 排序
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fba2a6bf-3bf5-4d9e-a09c-b467bc6d14fe)
 
+![image](images/fba2a6bf-3bf5-4d9e-a09c-b467bc6d14fe.png)
 <br>
 20世纪的翻转
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/cc9102fe-1c9d-4d31-8247-1bece95b3d27)
 
+![image](images/cc9102fe-1c9d-4d31-8247-1bece95b3d27.png)
 <br>
 BBC - 逼逼c
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/26e00c55-4be6-4ac1-8e40-cc7d867f1f6b)
 
+![image](images/26e00c55-4be6-4ac1-8e40-cc7d867f1f6b.png)
 <br>
 禁言
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/f3b0a1e3-5552-417b-88ce-8f685d01f920)
 
+![image](images/f3b0a1e3-5552-417b-88ce-8f685d01f920.png)
 <br>
 马蜂窝
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e315ecb4-86ce-4d6b-b1b5-91bfad09072c)
 
+![image](images/e315ecb4-86ce-4d6b-b1b5-91bfad09072c.png)
 <br>
 新势力
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/6b10c6d9-2ae8-4b12-9f22-94d82450770d)
 
+![image](images/6b10c6d9-2ae8-4b12-9f22-94d82450770d.png)
 <br>
 自己成为了他
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/e100f877-1457-49fe-9103-bebe4ce07e75)
 
+![image](images/e100f877-1457-49fe-9103-bebe4ce07e75.png)
 <br>
 新闻的屏幕不够大
 
-![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fa4a253c-6ee0-4430-879e-5bc09dc59bab)
 
+![image](images/fa4a253c-6ee0-4430-879e-5bc09dc59bab.png)
 <br>
 
 甜甜圈真好吃.png
 
-![图片](https://github.com/gaoe6661/anti-America-hegemony/assets/141204703/e52e6571-5e3f-4ca8-a71c-2785f5d56048)
+![图片](images/e52e6571-5e3f-4ca8-a71c-2785f5d56048.png)
 
 <br>
-
