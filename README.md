@@ -10,6 +10,7 @@
 * [美国对中国进行网络攻击相关报道](hacker)
 * [美国反对美国 - 书](https://github.com/zealotCE/America-Against-America)
 * [为什么要创建本仓库？](https://github.com/hm9245/github-not-politichub)
+* [给殖人反贼补充一下脑子](给殖人反贼补充一下脑子/index.md)
 
 <h3> 协 作 者 ， 请 勿 删 除   本   文   中 刻  意   存 留    的  任 何 空  格  和    看   似   不 恰  当   的  标 点 ， 目 的  是 为 了 突 破 八  爪 鱼 的 “ 自 由 的 ” 、 “  绝 对 没 有 的   ”  审 查 。 </h3>
 
@@ -593,3 +594,10 @@ BBC - 逼逼c
 ![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/fa4a253c-6ee0-4430-879e-5bc09dc59bab)
 
 <br>
+
+甜甜圈真好吃.png
+
+![图片](https://github.com/gaoe6661/anti-America-hegemony/assets/141204703/e52e6571-5e3f-4ca8-a71c-2785f5d56048)
+
+<br>
+
