@@ -600,3 +600,10 @@ BBC - 逼逼c
 ![图片](images/e52e6571-5e3f-4ca8-a71c-2785f5d56048.png)
 
 <br>
+自由的布
+
+![image](https://github.com/gaoe6661/anti-America-hegemony/assets/124422444/5bd413df-2d6a-4fdd-84b6-a370f3c6cd20)
+
+<br>
+
+
