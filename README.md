@@ -602,11 +602,11 @@ BBC - 逼逼c
 <br>
 自由的布
 
-![image](images/5bd413df-2d6a-4fdd-84b6-a370f3c6cd20)
+![image](images/5bd413df-2d6a-4fdd-84b6-a370f3c6cd20.png)
 
 <br>
 触目惊心
 
-![image](images/455f2fb5-00af-412c-aafe-6a438d9184c1)
+![image](images/455f2fb5-00af-412c-aafe-6a438d9184c1.png)
 
 <br>
