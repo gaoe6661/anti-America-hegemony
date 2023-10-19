@@ -6,8 +6,6 @@
 
 * [声明 Declaration](Declaration.md)
 * [黑名单 BlackLists](BlackLists.md)
-* [与六四事件有关的文章](8964)
-* [美国对中国进行网络攻击相关报道](hacker)
 * [美国反对美国 - 书](https://github.com/zealotCE/America-Against-America)
 * [为什么要创建本仓库？](https://github.com/hm9245/github-not-politichub)
 * [给殖人反贼补充一下脑子](给殖人反贼补充一下脑子/index.md)
