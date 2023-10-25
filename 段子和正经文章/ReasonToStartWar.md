@@ -9,3 +9,18 @@
 似乎每一条都在说丑国自己<br>
 
 </h1>
+
+<br>
+
+<h1>
+  
+Common reasons for declaring war in the United States:<br>
+
+1: Against Hegemony<br>
+2: Eliminate terrorist organizations<br>
+3: Eliminate weapons of mass destruction<br>
+4: Provide "dog-like" support<br>
+5: Shit<br>
+It seems that America is describing themself<br>
+</h1>
+
