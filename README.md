@@ -9,7 +9,7 @@
 * [美国反对美国 - 书 America against America - book](https://github.com/zealotCE/America-Against-America)
 * [为什么要创建本仓库？ - Why create this?](https://github.com/hm9245/github-not-politichub)
 * [给殖人反贼补充一下脑子 - Free basic knowledge](给殖人反贼补充一下脑子/index.md)
-* [经典好图 Good images](images)
+* [经典好图 Good images](https://github.com/gaoe6661/anti-America-hegemony/tree/main/images)
 
 <h3> 协 作 者 ， 请 勿 删 除   本   文   中 刻  意   存 留    的  任 何 空  格  和    看   似   不 恰  当   的  标 点 ， 目 的  是 为 了 突 破 八  爪 鱼 的 “ 自 由 的 ” 、 “  绝 对 没 有 的   ”  审 查 。 </h3>
 
