@@ -15,7 +15,8 @@
 
 <h1>中华人民共和国万岁！世界人民大团结万岁！打倒美国帝国主义！</h1>
 <h1>Long live the People's Republic of China! Long live the great unity of the peoples of the world! Down with American imperialism! </h1>
-
+<h1>问：为什么美国丑闻这么少？答：监控少。</h1>
+<h1>Question: Why are there so few scandals in the United States? Answer: There is less monitoring and recording. </h1>
 
 
 
